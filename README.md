@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="./" alt="Profil Görseli" width="100%">
+  <img src="./Untitled161_20260603210636.webp" alt="Profil Görseli" width="100%">
 </p>
