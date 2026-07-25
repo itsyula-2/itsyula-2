@@ -63,3 +63,10 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unles
 <p align="center">
   <img src="./tumblr_78891040051887042c0648890e1ecae5_cbac436b_1280_1.webp" alt="Profil Görseli" width="100%">
 </p>
+
+still wip here
+
+<p align="center">
+  <img src="./IMG_20260720_002129.png" alt="Profil Görseli" width="100%">
+</p>
+
