@@ -6,9 +6,8 @@
 
 <img src="./image" align="right" width="250" style="margin-left: 15px;">
 
-### Merhaba! 👋
-Buraya kendinizden bahseden yazıları yazabilirsiniz.
-Görsel sağ tarafta dururken bu yazılar görselin sol tarafında yan yana görünecektir.
+### ay
+Bura
 
 <br clear="right" />
 
