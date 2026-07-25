@@ -30,5 +30,13 @@ $\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\tex
 $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unless feel comfortable enough to tell u.}}$ 
 
 <p align="center">
-  <img src="./00560cc961ecf456140d026801303954.gif" alt="Profil Görseli" width="100%">
+  <img src="./tumblr_de89245c77febe37d222cc348821eb42_26642e7c_640_1.gif" alt="Profil Görseli" width="100%">
 </p>
+
+<img src="./Untitled864_20260215044631.webp" align="left" width="250" style="margin-right: 15px;">
+
+### Merhaba! 👋
+Buraya kendinizden bahseden yazıları yazabilirsiniz.
+Görsel sol tarafta dururken bu yazılar görselin sağ tarafında yan yana görünecektir.
+
+<br clear="left" />
