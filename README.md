@@ -29,3 +29,6 @@ $\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\tex
 
 $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unless feel comfortable enough to tell u.}}$ 
 
+<p align="center">
+  <img src="./00560cc961ecf456140d026801303954.gif" alt="Profil Görseli" width="100%">
+</p>
