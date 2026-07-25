@@ -4,4 +4,11 @@
   <img src="./Untitled161_20260603210636.webp" alt="Profil Görseli" width="100%">
 </p>
 
+<img src="./image" align="right" width="250" style="margin-left: 15px;">
+
+### Merhaba! 👋
+Buraya kendinizden bahseden yazıları yazabilirsiniz.
+Görsel sağ tarafta dururken bu yazılar görselin sol tarafında yan yana görünecektir.
+
+<br clear="right" />
 
