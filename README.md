@@ -20,6 +20,12 @@
 </p>
 
 ### before int !!
-- ıf ıdk u pls dont cuddle unless u see c*h
-- dnc my skins 
-wip
+
+$\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
+
+$\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c}\ast\text{h}}$
+
+$\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
+
+$\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unless feel comfortable enough to tell u.}}$ 
+
