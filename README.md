@@ -39,3 +39,19 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unles
 ╰┈➤ˎˊ kny , ALNST , arcane , murder drones , tadc , gameoverse , knights of guinevere , warrior cats , httyd , AvA / AvM ~ (alan becker) , Unstable Universe smp , DAWTDE/SFAWTDE , country humans , country balls , tfc , helluva boss , Detroit Become Human , crk , tbh-k ,the girl from the other side , hikaru died in summer , signalis , sbg , cos , wakfu , dragon prince , avatar , atla , mouthwashing ,  𓂃 𓈒𓏸
 
 <br clear="left" />
+
+ 　　　　　　*　　　　　　　　　　　　　　　　　　.
+　　　　.　　　　.　　　⠀
+　　　　　　　　　　　.
+　　　　　　　
+　　　˚　　　　　　　　ﾟ　　　　　.
+　.⠀　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀,
+　　　*　　⠀.
+　　　　　.　　　　　　　　　　⠀✦
+　˚　　　　　　　　　　　　　　*⠀⠀⠀
+
+<p align="center">
+  <img src="./Untitled864_20260215044631.webp" alt="Profil Görseli" width="100%">
+</p>
+
+(still wip here)
