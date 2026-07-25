@@ -33,10 +33,9 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unles
   <img src="./tumblr_de89245c77febe37d222cc348821eb42_26642e7c_640_1.gif" alt="Profil Görseli" width="100%">
 </p>
 
-<img src="./Untitled864_20260215044631.webp" align="left" width="250" style="margin-right: 15px;">
+<img src="./Untitled147_20250909150327.webp" align="left" width="250" style="margin-right: 15px;">
 
-### Merhaba! 👋
-Buraya kendinizden bahseden yazıları yazabilirsiniz.
-Görsel sol tarafta dururken bu yazılar görselin sağ tarafında yan yana görünecektir.
+### fandoms ₊ ⊹
+╰┈➤ˎˊ kny , ALNST , arcane , murder drones , tadc , gameoverse , knights of guinevere , warrior cats , httyd , AvA / AvM ~ (alan becker) , Unstable Universe smp , DAWTDE/SFAWTDE , country humans , country balls , tfc , helluva boss , Detroit Become Human , crk , tbh-k ,the girl from the other side , hikaru died in summer , signalis , sbg , cos , wakfu , dragon prince , avatar , atla , mouthwashing ,  𓂃 𓈒𓏸
 
 <br clear="left" />
