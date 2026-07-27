@@ -65,6 +65,10 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +CFO!!
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=STIX+Two+Text&size=19&duration=2000&pause=100&color=B4B4F7&background=66548A00&vCenter=true&multiline=true&repeat=false&width=423&height=200&lines=-+Sanae+%2F+Hae+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9+%40sanaewq;-+Wansi+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9+%40spokishere;-+Dew+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9++%40redsundew+;-+Burak+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9+%40Sxarixiez;-+Ixia+%2F+Nisa+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9;-+Tuana+%2F+Vi%C5%9Fne+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9" alt="Typing SVG" /></a>
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=STIX+Two+Text&size=25&duration=3000&pause=2000&color=B4B4F7&background=66548A00&vCenter=true&multiline=true&width=700&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%8B%86%CB%99%E2%9F%A1%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%82%8A%CB%9A%E2%8A%B9%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4.%E2%9C%A6+%DD%81%CB%96" alt="Typing SVG" /></a>
+
+[✦sanae/hae's](https://github.com/sanaewq)ㅤㅤㅤㅤㅤ [✦wansi's](https://github.com/spokishere)ㅤㅤㅤㅤㅤ [✦dew's](https://github.com/redsundew)ㅤㅤㅤㅤㅤ [✦burak's](https://github.com/Sxarixiez)
+
 
 <p align="center">
   <img src="./tumblr_78891040051887042c0648890e1ecae5_cbac436b_1280_1.webp" alt="Profil Görseli" width="100%">
