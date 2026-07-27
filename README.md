@@ -33,7 +33,7 @@ $\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and a
 
 $\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
 
-$\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unless feel comfortable enough to tell u.}}$ 
+$\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +CFO!!}}$ 
 
 <p align="center">
   <img src="./tumblr_de89245c77febe37d222cc348821eb42_26642e7c_640_1.gif" alt="Profil Görseli" width="100%">
