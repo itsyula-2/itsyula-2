@@ -1,9 +1,10 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Alegreya&size=12&duration=500&pause=1000&color=B5A2F7&vCenter=true&multiline=true&repeat=false&width=423&height=33&lines=For+a+better+experience%2C+view+on+PC%2Ftablet." alt="Typing SVG" /></a>
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&pause=1000&color=B4CBF7&repeat=false&width=435&lines=welcome+pal+!!" alt="Typing SVG" /></a>
 
 <p align="center">
   <img src="./Untitled161_20260603210636.webp" alt="Profil Görseli" width="100%">
 </p>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Alegreya&size=12&duration=500&pause=1000&color=B5A2F7&vCenter=true&multiline=true&repeat=false&width=423&height=33&lines=For+a+better+experience%2C+view+on+PC%2Ftablet." alt="Typing SVG" /></a>
 
 <img src="./Untitled141_20260601194919.webp" align="right" width="250" style="margin-left: 15px;">
 
