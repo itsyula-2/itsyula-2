@@ -27,6 +27,10 @@ $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
 $\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c}\ast\text{h}}$
 
+$\color{#B985F7}{\text{- no rp just humoristic/frivolous rps}}$
+
+$\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and acceptable ships}}$
+
 $\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
 
 $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unless feel comfortable enough to tell u.}}$ 
