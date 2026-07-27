@@ -41,7 +41,7 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +unles
 
 <img src="./Untitled147_20250909150327.webp" align="left" width="250" style="margin-right: 15px;">
 
-### fandoms ₊ ⊹
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Alegreya&size=23&duration=500&pause=1000&color=BD75FF&vCenter=true&multiline=true&repeat=false&width=423&height=37&lines=fandoms+%E2%82%8A+%E2%8A%B9" alt="Typing SVG" /></a>
 ╰┈➤ˎˊ kny , ALNST , arcane , murder drones , tadc , gameoverse , knights of guinevere , warrior cats , httyd , AvA / AvM ~ (alan becker) , Unstable Universe smp , DAWTDE/SFAWTDE , country humans , country balls , tfc , helluva boss , Detroit Become Human , crk , tbh-k ,the girl from the other side , hikaru died in summer , signalis , sbg , cos , wakfu , dragon prince , avatar , atla , mouthwashing ,  𓂃 𓈒𓏸
 
 <br clear="left" />
