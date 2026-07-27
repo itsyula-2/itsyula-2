@@ -67,7 +67,7 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +CFO!!
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=STIX+Two+Text&size=25&duration=3000&pause=2000&color=B4B4F7&background=66548A00&vCenter=true&multiline=true&width=700&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%8B%86%CB%99%E2%9F%A1%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4+%F0%93%82%83%CB%96+%E0%A3%AA%E2%8A%B9%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E2%82%8A%CB%9A%E2%8A%B9%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4.%E2%9C%A6+%DD%81%CB%96" alt="Typing SVG" /></a>
 
-[✦sanae/hae's](https://github.com/sanaewq)ㅤㅤㅤㅤㅤ [✦wansi's](https://github.com/spokishere)ㅤㅤㅤㅤㅤ [✦dew's](https://github.com/redsundew)ㅤㅤㅤㅤㅤ [✦burak's](https://github.com/Sxarixiez)
+ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ [✦sanae/hae's](https://github.com/sanaewq)ㅤㅤㅤㅤㅤ [✦wansi's](https://github.com/spokishere)ㅤㅤㅤㅤㅤ [✦dew's](https://github.com/redsundew)ㅤㅤㅤㅤㅤ [✦burak's](https://github.com/Sxarixiez)
 
 
 <p align="center">
