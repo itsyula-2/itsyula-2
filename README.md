@@ -21,7 +21,7 @@
   <img src="./Untitled443_20260521123513.webp" alt="Header Banner" width="100%">
 </p>
 
-### before int !!
+### before int in pt !!
 
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
