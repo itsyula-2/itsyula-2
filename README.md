@@ -37,11 +37,11 @@ $\color{#B985F7}{\text{- no rp just humoristic/frivolous rps}}$
 
 $\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and acceptable ships}}$
 
-$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
+$\color{#B985F7}{\text{- do not copy my skins +unless matching}}$
 
-$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤ- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
+$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-boop-4x.gif" height="90" style="vertical-align: middle;">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-boop-4x.gif" height="90" style="vertical-align: middle;">
 
 <br clear="left" />
 
