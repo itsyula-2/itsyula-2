@@ -25,7 +25,9 @@
   <img src="./Untitled443_20260521123513.webp" alt="Header Banner" width="100%">
 </p>
 
-### before int in pt !!
+  before int in pt !!  <img
+src="pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" height="70" style="vertical-align: middle;" >
+
 
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
