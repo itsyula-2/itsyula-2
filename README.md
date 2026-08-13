@@ -28,7 +28,8 @@
 <img src="./pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" align="left" width="190" style="margin-right: 15px;">
 
 ###  before int in pony town !!  ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" height="80" style="vertical-align: middle;">ㅤㅤㅤ
+
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
 $\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c}\ast\text{h}}$
