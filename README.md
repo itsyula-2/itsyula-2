@@ -25,10 +25,10 @@
   <img src="./Untitled443_20260521123513.webp" alt="Header Banner" width="100%">
 </p>
 
-  before int in pt !!  <img
-src="pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" height="70" style="vertical-align: middle;" >
+<img src="./pony-town-— ◜ yula ◝ ¬ ☁-trot-shadow-4x.png" align="left" width="200" style="margin-right: 15px;">
 
-
+###  before int in pt !!  ㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
 $\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c}\ast\text{h}}$
@@ -40,6 +40,8 @@ $\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and a
 $\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
 
 $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
+
+<br clear="left" />
 
 <p align="center">
   <img src="./tumblr_de89245c77febe37d222cc348821eb42_26642e7c_640_1.gif" alt="Profil Görseli" width="100%">
