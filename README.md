@@ -27,8 +27,7 @@
 
 <img src="./pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" align="left" width="190" style="margin-right: 15px;">
 
-###  before int in pony town !!  ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" height="80" style="vertical-align: middle;">ㅤㅤㅤ
+###  before int in pony town !!  ㅤ
 
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
@@ -38,9 +37,11 @@ $\color{#B985F7}{\text{- no rp just humoristic/frivolous rps}}$
 
 $\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and acceptable ships}}$
 
-$\color{#B985F7}{\text{- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
+$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- do not copy my skins +unless matching or if u }\ast\text{asking}\ast\text{ abt copy skin }\ast\text{parts}\ast}$
 
-$\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
+$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤ- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-boop-4x.gif" height="90" style="vertical-align: middle;">
 
 <br clear="left" />
 
