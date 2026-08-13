@@ -25,9 +25,9 @@
   <img src="./Untitled443_20260521123513.webp" alt="Header Banner" width="100%">
 </p>
 
-<img src="./pony-town-— ◜ yula ◝ ¬ ☁-trot-shadow-4x.png" align="left" width="200" style="margin-right: 15px;">
+<img src="./pony-town-— ◜ yula ◝ ¬ ☁-dance-1-b-4x.gif" align="left" width="190" style="margin-right: 15px;">
 
-###  before int in pt !!  ㅤㅤ
+###  before int in pony town !!  ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
