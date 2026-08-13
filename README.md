@@ -39,9 +39,9 @@ $\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and a
 
 $\color{#B985F7}{\text{- do not copy my skins +unless matching}}$
 
-$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
+$\color{#B985F7}{\text{ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- do NOT ask abt my biology gender. Its disturbing +CF/FSO abt this topic}}$ 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-boop-4x.gif" height="90" style="vertical-align: middle;">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="pony-town-— ◜ yula ◝ ¬ ☁-boop-4x.gif" height="90" style="vertical-align: middle;">
 
 <br clear="left" />
 
