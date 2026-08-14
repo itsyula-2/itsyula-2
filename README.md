@@ -85,7 +85,7 @@ $\color{#B985F7}{\text{- do NOT ask abt my biology gender. Its disturbing +CF/FS
 </p>
 
 <p align="center">
-  <img src="./IMG_20260720_002129.png" alt="Profil Görseli" width="100%">
+  <img src="./Untitled170_20260517233706-1.png" alt="Profil Görseli" width="100%">
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ $\color{#a7a8c9}{\text{I can add a memories section. kinda wip here}}$
