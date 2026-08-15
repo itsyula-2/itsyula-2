@@ -4,7 +4,7 @@
 <p align="center">
   <img src="./Untitled161_20260603210636.webp" alt="Profil Görseli" width="100%">
 </p>
-</p> <img src="tumblr_1671c943cb54c20369bdd697198fab54_9a1e31a1_75.webp" height="65" style="vertical-align: big;">
+</p> <img src="tumblr_1671c943cb54c20369bdd697198fab54_9a1e31a1_75.webp" width="80" height="65" style="vertical-align: big;">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Alegreya&size=12&duration=500&pause=1000&color=B5A2F7&vCenter=true&multiline=true&repeat=false&width=423&height=33&lines=For+a+better+experience%2C+view+on+PC%2Ftablet." alt="Typing SVG" /></a>
 
 <img src="./Untitled141_20260601194919.webp" align="right" width="250" style="margin-left: 15px;">
