@@ -36,7 +36,7 @@ $\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c+h}}$
 
 $\color{#B985F7}{\text{- no rp just humoristic/frivolous rps}}$
 
-$\color{#B985F7}{\text{- ¨UU smp¨ no bolundary breaking ships. just duos and acceptable ships}}$
+$\color{#B985F7}{\text{- ¨for mcyt fandom¨ no bolundary breaking ships. just duos and acceptable ships}}$
 
 $\color{#B985F7}{\text{- do not copy my skins +unless matching}}$
 
