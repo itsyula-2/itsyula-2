@@ -15,7 +15,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gochi+Hand&size=17&duration=500&pause=1000&color=A7C3F7&vCenter=true&multiline=true&repeat=false&width=423&height=160&lines=-+17+y%2Fo;-+infp+%2C+%E3%85%A4in(f)%E3%85%A4%E3%85%A4sx9%2C%E3%85%A4sx7%2C%E3%85%A4so9;-+genderfluid%E3%85%A4%DB%AB+%D7%85+berri+%E3%85%A4%DB%AB+%D7%85+grayace;-+multifandom;-+lazy+ass+artist;-+from+t%C3%BCrkiye;-+ADHD+d%2Fo" alt="Typing SVG" /></a>
 
 <img src="Baslksz47_20260813150811.png" height="25" style="vertical-align: middle;"><img   
-                                                                                      src="Baslksz47_20260813150526.png" height="25" style="vertical-align: middle;"><img  
+                                                                                      src="Baslksz47_20260830191644.png" height="25" style="vertical-align: middle;"><img  
                                                                                                                                                                        src="Baslksz47_20260813151028.png" height="25" style="vertical-align: middle;">
 
 <br clear="right" />
