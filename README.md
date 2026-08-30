@@ -32,7 +32,7 @@
 
 $\color{#B985F7}{\text{- Often semi active or offtab / afk in game pls w2i !!}}$
 
-$\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c}\ast\text{h}}$
+$\color{#B985F7}{\text{- if idk you pls dont cuddle +unless u see c+h}}$
 
 $\color{#B985F7}{\text{- no rp just humoristic/frivolous rps}}$
 
